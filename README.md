@@ -18,4 +18,3 @@ Gosto de compartilhar o que aprendo, incluindo as tentativas e o caminho até a 
 
 ---
 
-Quer trocar uma ideia? Você também me encontra no **[LinkedIn](https://www.linkedin.com/in/eloizilima/)**.
